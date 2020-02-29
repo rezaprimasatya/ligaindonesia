@@ -1,2 +1,2 @@
-# ligaindonesia
+# Liga Indonesia
 Indonesia Football
